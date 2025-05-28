@@ -4,6 +4,7 @@ Welcome to my GitHub! I'm a results-driven professional with a background in aud
 My goal is to help organizations make smarter decisions by transforming data into actionable insights.
 
 ✅ What I Bring to the Table
+
 Attention to Detail: Developed through auditing and operations roles, where precision and accountability were critical.
 
 Process Optimization: Improved workflows and communication systems as an Office Manager and International Control Room Agent.
